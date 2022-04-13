@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @nadzzzzzzz
 - 👀 I’m interested in Cyber Secrity
 - 🌱 I’m currently learning Cyber secrity Engineering
-- 💞️ I’m looking to collaborate on Eveerything anything you ca teach me
+- 💞️ I’m looking to collaborate on Eveerything & anything you cam teach me
 - 📫 How to reach me write to me at nz9089@srmist.edu.in or you can also reach out to me on my insta profile @nadz__zz
 
 <!---
